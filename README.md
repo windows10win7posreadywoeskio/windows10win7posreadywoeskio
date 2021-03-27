@@ -8,7 +8,8 @@
 
 ### LINKS
 
-- [test](https://discord.gg/CXgejHy9Rp)
+- [DISCORD](https://discord.gg/CXgejHy9Rp)
+- [youtube](https://www.youtube.com/channel/UCyKhjIM-VL_a-QaUPSpwDLQ)
 
 <!---
 windows10win7posreadywoeskio/windows10win7posreadywoeskio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
